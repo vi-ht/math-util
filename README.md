@@ -10,5 +10,5 @@ of Math cas found in JDK
 
 ## Connect me via
 1. [facebook](https://www.facebook.com/merry.kute.31/)
-2. [Email](mailto: thanhviii888@gmail.com)
+2. [Email](mailto:thanhviii888@gmail.com)
 #### ⓒ 2020 by Thanh Vi
